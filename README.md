@@ -78,6 +78,6 @@ deepi0106m@gamil.com
 
 **GitHub:**
 
-[github.com/]DeepikaSenthilrajams
+https://github.com/DeepikaSenthilrajams
 
 Thanks for stopping by my corner of the internet! 💫
